@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @123pramodadatrao
-- 🌱 I’m currently learning in SE Civil engineering
 - 📫 How to reach me email:adatraopramod@gmail.com
 
 <!---
